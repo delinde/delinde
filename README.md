@@ -11,4 +11,4 @@ Forschungsbereiche:<br>
 – Klangaufzeichnung mit HTML5,<br>
 – Graphing Calculator von Ron Avitzur.<br><br>
 
-Ihr erreicht mich unter detlef@lindenthal.com oder #49.48466166.<br>
+Ihr erreicht mich unter detlef@lindenthal.com oder +49.48466166.<br>
